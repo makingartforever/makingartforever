@@ -1,1 +1,1 @@
-Passionately Making Games is an upcoming game dev studio!
+Creator of Passionately Making Games, an upcoming game dev studio!
